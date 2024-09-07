@@ -1,1 +1,1 @@
-# mingyu.github.io
+# mingy.github.io
